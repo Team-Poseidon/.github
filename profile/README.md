@@ -1,4 +1,4 @@
-## Hi there 👋
+## We are here to kick ass and chew bubble gum... and we're all out of bubble gum.
 
 <!--
 
